@@ -1,1 +1,2 @@
 # Lablab-po-kita-
+Hi mahal ko HAHAHA lagi mo pong tatandaan na ang ganda ganda mo, mahal pangako po na hinding hindi nako mag hahanap ng iba kasi nandyan kana ayoko nang sayangin kapa, wala eh lab na lab talaga kita sorry po kung pasaway ako gusto ko lang ng kiss tsaka hug mo Hahaha basta mahal ko andito lang po ako palagi kapag kailangan mo ng tulong hinding hindi kita pababayaan Iloveyouuuuuuuuu Mwaa waa
